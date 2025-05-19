@@ -1,1 +1,1 @@
-Github Organization For Club IT SMAN 2 Kuta Utara 
+Github Organization For IT Club SMAN 2 Kuta Utara 
