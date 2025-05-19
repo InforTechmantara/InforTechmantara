@@ -1,1 +1,1 @@
-Github Organization For Club IT Dwismantara
+Github Organization For Club IT SMAN 2 Kuta Utara 
